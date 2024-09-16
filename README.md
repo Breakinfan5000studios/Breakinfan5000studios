@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Breakinfan5000studios
+- 👀 I’m interested in making Sonic break in 1-9 i need a digital team of developers and cracky4 premission also tikytheleader
+- 🌱 I’m currently learning coding and developing
+- 💞️ I’m looking to collaborate on games with RTX-GTX graphics
+- 📫 How to reach me email Shadowplays4812@outlook.com
+- 😄 Pronouns: he-him
+- ⚡ Fun fact: my school nickname is Superstar and i like roblox my games needs to be seperate and on roblox
